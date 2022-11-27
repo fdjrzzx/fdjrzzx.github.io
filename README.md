@@ -1,2 +1,0 @@
-# fdjrzzx.github.io
-Samlekom
